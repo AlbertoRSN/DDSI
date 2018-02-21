@@ -1,1 +1,1 @@
-Proyecto realizado junto a @AlbertoRSN. prueba
+Proyecto realizado junto a @AlbertoRSN.
